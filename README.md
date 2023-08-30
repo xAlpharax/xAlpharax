@@ -1,6 +1,6 @@
 ### Alphara
 
-Math student here. U+ToTx:]
+Math student. U+ToTx:]
 
 ### Interests
 
